@@ -1,16 +1,13 @@
-### Hi there 👋
+**Olá, bem vindo ao meu perfil **
+Para você quer não me conhece prazer, Guilherme Costodio, mais conhecido como **JOGADOR DO CASCAVEL (O MELHOR)**
 
-<!--
-**GV7melhor/GV7melhor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Estou fazendo o curso do [Alura](https://www.alura.com.br)
+Estou utilizando o site para organizar e aprender melhor o chamado [JavaScript](https://pt.wikipedia.org/wiki/JavaScript)
 
-Here are some ideas to get you started:
+AINDA NÃO TENHO CONTATOS PARA TIRAR AS DÚVIDAS 💎
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Obrigado por acessar o meu perfil calendar
+
+FRASE DE REFLEXÂO pensive A CRIATIVIDADE É A INTELIGÊNCIA SE DIVERTINDO palms_up_together
+
+()[]!(https://tenor.com/pt-BR/view/neyney-neymar-neymar-jr-neymar-da-silva-santos-junior-footballer-gif-17799543)
