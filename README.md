@@ -12,4 +12,4 @@ FRASE DE REFLEXÂO pensive A CRIATIVIDADE É A INTELIGÊNCIA SE DIVERTINDO
 
 
 
-![](https://tenor.com/pt-BR/view/neyney-neymar-neymar-jr-neymar-da-silva-santos-junior-footballer-gif-17799543)
+![](https://tenor.com/pt-BR/view/neyney-neymar-neymar-jr-neymar-da-silva-santos-j%C3%BAnior-footballer-gif-17799595)
