@@ -10,8 +10,5 @@ Obrigado por acessar o meu perfil calendar
 
 FRASE DE REFLEXÂO pensive A CRIATIVIDADE É A INTELIGÊNCIA SE DIVERTINDO 
 
+![](https://media.tenor.com/WfB2PNMXY6AAAAAC/manchester-united-cristiano-ronaldo.gif)
 
-
-
-
-![](https://tenor.com/pt-BR/view/neyney-neymar-neymar-jr-neymar-da-silva-santos-j%C3%BAnior-footballer-gif-17799595)
